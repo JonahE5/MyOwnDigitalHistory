@@ -1,0 +1,3 @@
+Transcription with Azure Results:
+
+SIZE. DESCRIPTION. WHERE BORN "ATTESTATION, &c." FORMER SERVICE IN ANY CORPS APPLICABLE TO FOREIGN SERVICE. AGE TRADE At Balat- In what "Period, dedu tiny Ser-" Actual Service in the Ealist- 44 Years "County," For what viCe prior to the Age of "Eu-t or West Indies, in-" NAMES / 18 ment. "City, or" Occupa- Period of By ubow calisted. "Corps, ce if 18 Years, was the Time" cluded in the preceding "Parish," Place. Date. "alent by Duertion," Columus. "tion," Service. on the Town. Out Pension. "Marks, &c" Fert. inches. Dass. Complexion. "Form of Visage," Feat. Hesten Jos. 54 \18 . Fair grey fair Song Atton Sos. 3 2 Anderson Sno o elllen Same 6 75 anderson calle J 6%
